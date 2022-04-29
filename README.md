@@ -1,2 +1,5 @@
-# echoes-of-mana-cheats-unlimited-crystals-hacks
-Echoes of Mana Cheats unlimited spirit crystals Hacks tutorial global ver.
+# Echoes of Mana Cheats unlimited spirit crystals Hacks tutorial
+
+Echoes of Mana Cheats unlimited spirit crystals Hacks tutorial global ver. - Once you're back, you'll have a chunk of experience for your character to wait for you without any effort. You can only do it once a day, so turn it on when you don't want to play and don't need a tablet to do anything. Every Monday, Wednesday, Friday and Sunday, you can take part in the landscape test. What gives you a headache is the silver coin. Like Ragnarok X's ox test, you and a group of other players must guess the answer to a question and then go to X or O to answer it. Every time you answer a question correctly, you will get extra silver coins. If you answer wrong, you will be eliminated. The problem here is very vague and rarely related to the game. If you have another tablet or are playing on a simulator such as bluestacks or NOx, now is a good time to start your favorite search engine and type in your answers quickly. If you don't type fast enough, you can also choose to follow the crowd, although they may still make mistakes!
+
+<a href="https://growhunt.top/echoes-of-mana/">view here</a>
